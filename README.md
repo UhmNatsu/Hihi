@@ -43,20 +43,8 @@ Please stay safe.
 
 •Any other! (Vocaloid,Sth,fnf,forsaken)
 
-# Straw-Pages
-Any other Strawpages are:- 
-in my profile obv 😛
 
-New Strawpages are updated in my Read.Me!
-
-
-# GIF-made-by-me
+# Bye
 ![Image](https://github.com/user-attachments/assets/8a1daa82-72cf-4a72-a33a-89485462aafa)
 
-🎀 ever wondering how to make you're own GIFs? welp i used tuts which surprisingly helped. 
-
-you first gotta go to google and just type ezgif then make the GIF, simple!!
-
-the GIF i made looks lazy ngl 😭 
-
-its like bassie begging for happiness
+its like bassie begging for happiness.. 
